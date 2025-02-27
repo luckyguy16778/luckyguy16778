@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @luckyguy16778
-- 👀 I’m interested in knowing about malware
-- 🌱 I’m currently learning how to create one
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me +254740133725
+- 👋 Hi, I’m @spideey_254
+- 👀 am one of your admin
+- 🌱 I’m welcoming everyone
+- 💞️ I’m glad to be here
+- 📫 How to reach me +254757567098
 - 😄 Pronouns: ... brilliant 
 - ⚡ Fun fact: i love girls
 
